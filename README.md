@@ -1,4 +1,4 @@
-# Money-Tree
+Privacy Policy
 We respect the privacy of its users (“User” or “You”) and are committed to protect the User’s information, be it yours or your child’s. We believe that You have a right to know our practices regarding the information we may collect and use when You use our mobile applications such as interactive e-books, games, and educational experiences (“Products” as defined in our Terms of Use) and website (the Products and website together, the “Service”).
 1. Your consent :
  (important, please read carefully!)By accessing and/or using the Service is defined as site plus apps, You agree to the terms and conditions set forth in this Privacy Policy, including to the possible collection and processing of your Personal Information (as defined below). Please note: if You disagree to any term provided herein, You may not access or use the Service.
